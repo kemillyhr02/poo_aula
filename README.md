@@ -1,5 +1,2 @@
   # poo_aula
-eu to com fome!
-scrr nao aguento mais estudar
-
-hello world
+Twenty-nine peals in your kiss. A singing smile. Coffee smell and lilac skin. Your flame in me. 
